@@ -1,1 +1,1 @@
-# miminesewq.github.io
+# mimines.github.io
